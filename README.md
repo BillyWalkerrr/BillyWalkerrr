@@ -13,7 +13,7 @@ As a student at Binghamton University, I'm navigating through a Bachelor of Arts
 * Coding in Action
 * Calculus 1-3
 * Ordinary Differetal Equations
-* 
+
 
 
 📫 How to reach me:
