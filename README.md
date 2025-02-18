@@ -5,4 +5,4 @@ At Binghamton University, I'm navigating through a Bachelor of Arts in Statistic
 In my other current position as an assistant at National Insurance Brokerage of New York, I have been introduced to professionalism and what it takes to be a successful worker. Starting as a summer intern in 2023, with continuous hard work and dedication to detail, I have worked my way up to a full time assistant in between school semesters and a part time remote position during the semester.
 
 
-📫 How to reach me: [Email](billybluewalker7@gmail.com) [LinkedIn](https://www.linkedin.com/in/william-walker25/)
+📫 How to reach me: Email-billybluewalker7@gmail.com [LinkedIn](https://www.linkedin.com/in/william-walker25/)
