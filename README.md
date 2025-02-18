@@ -6,6 +6,6 @@ Coursework that I have taken:
 * [Data Vizualization](https://public.tableau.com/app/profile/william.walker5552/vizzes)
 
 
-📫 How to reach me: * Email (billybluewalker7@gmail.com) 
-                    * [LinkedIn](https://www.linkedin.com/in/william-walker25/)
+📫 How to reach me: *Email (billybluewalker7@gmail.com) 
+[LinkedIn](https://www.linkedin.com/in/william-walker25/)
                     
